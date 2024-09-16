@@ -28,8 +28,7 @@ Welcome to my little corner of the internet! I'm a **Tech Enthusiast (maybe,soun
 ## 📫 How to reach me:
 - **Email**: [swatiswapnas.s@gmail.com](mailto:swatiswapnas.s@gmail.com)
 - **LinkedIn**: [linkedin.com/in/swati-swapna](https://linkedin.com/in/swati-swapna)
-- **GitHub**: [github.com/swatiswapna](https://github.com/swatiswapna)
-
+- **Instagram**: swatiswapna24
 ## ⚡ Fun fact:
 Once destined for a medical career, I stumbled into CSE by chance—and thank goodness for that! 
 
