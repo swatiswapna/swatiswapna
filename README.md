@@ -30,6 +30,7 @@ Welcome to my little corner of the internet! I'm a **Tech Enthusiast (maybe,soun
 - **LinkedIn**: [linkedin.com/in/swati-swapna](https://linkedin.com/in/swati-swapna)
 - **Instagram**: swatiswapna24
 ## ⚡ Fun fact:
-Once destined for a medical career, I stumbled into CSE by chance—and thank goodness for that! 
+boring person
+
 
 
